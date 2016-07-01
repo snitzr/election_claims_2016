@@ -8,6 +8,8 @@
 - [The 2016 election is already decided. History says Hillary Clinton wins.](https://www.washingtonpost.com/opinions/the-2016-election-is-already-decided-history-says-hillary-clinton-wins/2016/06/28/8c6e682e-3d49-11e6-80bc-d06711fd2125_story.html) Doug Sosnik
 - [Hillary has already won the presidency](https://www.washingtonpost.com/news/opinions/wp/2016/06/01/hillary-has-already-won-the-presidency/) Tom Toles
 - [Donald Trump will (almost certainly) never be elected president. Here’s why.](https://www.washingtonpost.com/blogs/plum-line/wp/2016/03/21/donald-trump-will-almost-certainly-never-be-elected-president-heres-why/) Greg Sargent
+- [Donald Trump will not be president: History, polling data and demographics all point to a single result](http://www.salon.com/2016/05/05/donald_trump_will_not_be_president_history_polling_data_and_demographics_all_point_to_a_single_result_partner/) Anthony J. Gaughan
+- [Op-Ed Don't panic, Democrats, Hillary Clinton will beat Donald Trump](http://www.latimes.com/opinion/op-ed/la-oe-green-hillary-clinton-will-win-20160606-snap-story.html) Mark Green
 
 ## Trump
 - [After Brexit, a Trump Path to Victory](https://www.lewrockwell.com/2016/06/patrick-j-buchanan/trump-will-win/) Patrick J. Buchanan
@@ -15,6 +17,8 @@
 - [I was wrong: Trump WILL be the next president](http://www.cnbc.com/2016/06/01/i-was-wrong-trump-will-be-the-next-president-commentary.html) Jake Novak
 - [Here’s Why Clinton Will Lose the Election to Donald Trump](http://www.thefiscaltimes.com/Columns/2016/05/11/Here-s-Why-Clinton-Will-Lose-Election-Donald-Trump) Liz Peek
 - [Why Clinton Will Lose](http://www.usnews.com/opinion/articles/2016-05-20/why-hillary-clinton-will-lose-to-donald-trump) Mary Kate Cary
+- [Donald Trump is going to win](http://www.salon.com/2016/05/23/donald_trump_is_going_to_win_this_is_why_hillary_clinton_cant_defeat_what_trump_represents/) Anis Shivani
+- [My Gut: Trump Beats Hillary in Landslide](http://www.rushlimbaugh.com/daily/2016/05/04/my_gut_trump_beats_hillary_in_landslide) Rush Limbaugh 
 - [Donald Trump will win in a landslide. *The mind behind ‘Dilbert’ explains why.](https://www.washingtonpost.com/news/comic-riffs/wp/2016/03/21/donald-trump-will-win-in-a-landslide-the-mind-behind-dilbert-explains-why/) Scott Adams
 
 ## Multiple winner predictions in one article
