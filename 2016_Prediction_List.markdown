@@ -19,5 +19,5 @@
 - http://www.usnews.com/opinion/articles/2016-05-20/why-hillary-clinton-will-lose-to-donald-trump
 - https://www.washingtonpost.com/news/comic-riffs/wp/2016/03/21/donald-trump-will-win-in-a-landslide-the-mind-behind-dilbert-explains-why/?tid=hybrid_experimentrandom_1_na
 
-## Prediction articles with multiple predictions
+## Multiple winner predictions in one article
 - 
