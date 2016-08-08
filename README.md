@@ -2,4 +2,4 @@
 
 This is an editable [list of all claims of either a Hillary or Trump win](2016_Prediction_List.markdown) in the 2016 United States of America national election. Feel free to add to this list.
 
-Come back here after [Election Day](//en.wikipedia.org/wiki/United_States_elections,_2016) November 8, 2016 and see who was right and who was wrong.
+Come back here after [Election Day](//en.wikipedia.org/wiki/United_States_elections,_2016) November 8, 2016 and see who got it right.
