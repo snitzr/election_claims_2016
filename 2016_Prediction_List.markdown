@@ -20,6 +20,8 @@
 - [Donald Trump is going to win](http://www.salon.com/2016/05/23/donald_trump_is_going_to_win_this_is_why_hillary_clinton_cant_defeat_what_trump_represents/) Anis Shivani
 - [My Gut: Trump Beats Hillary in Landslide](http://www.rushlimbaugh.com/daily/2016/05/04/my_gut_trump_beats_hillary_in_landslide) Rush Limbaugh 
 - [Donald Trump will win in a landslide. *The mind behind ‘Dilbert’ explains why.](https://www.washingtonpost.com/news/comic-riffs/wp/2016/03/21/donald-trump-will-win-in-a-landslide-the-mind-behind-dilbert-explains-why/) Scott Adams
+- [5 Reasons Why Trump Will Win](http://michaelmoore.com/trumpwillwin/) Michael Moore
+- [Social Media Patterns Show Trump Is Looking at a Landslide Victory](http://www.thegatewaypundit.com/2016/08/evidence-trump-landslide/) Joe Hoft
 
 ## Multiple winner predictions in one article
 - 
