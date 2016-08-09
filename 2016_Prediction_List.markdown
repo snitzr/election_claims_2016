@@ -25,4 +25,4 @@
 - [Glenn Makes Wild Prediction About Trump](http://www.glennbeck.com/2016/05/11/glenn-makes-wild-prediction-about-trump/) Glenn Beck
 
 ## Multiple winner predictions in one article
-- 
+- [no articles]
