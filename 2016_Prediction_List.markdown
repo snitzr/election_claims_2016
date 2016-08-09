@@ -22,6 +22,7 @@
 - [Donald Trump will win in a landslide. *The mind behind ‘Dilbert’ explains why.](https://www.washingtonpost.com/news/comic-riffs/wp/2016/03/21/donald-trump-will-win-in-a-landslide-the-mind-behind-dilbert-explains-why/) Scott Adams
 - [5 Reasons Why Trump Will Win](http://michaelmoore.com/trumpwillwin/) Michael Moore
 - [Social Media Patterns Show Trump Is Looking at a Landslide Victory](http://www.thegatewaypundit.com/2016/08/evidence-trump-landslide/) Joe Hoft
+- [Glenn Makes Wild Prediction About Trump](http://www.glennbeck.com/2016/05/11/glenn-makes-wild-prediction-about-trump/) Glenn Beck
 
 ## Multiple winner predictions in one article
 - 
