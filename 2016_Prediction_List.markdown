@@ -25,6 +25,7 @@
 - [Social Media Patterns Show Trump Is Looking at a Landslide Victory](http://www.thegatewaypundit.com/2016/08/evidence-trump-landslide/) Joe Hoft
 - [Glenn Makes Wild Prediction About Trump](http://www.glennbeck.com/2016/05/11/glenn-makes-wild-prediction-about-trump/) Glenn Beck
 - [Election 2016 is over. Trump won](http://www.usatoday.com/story/opinion/2016/07/29/trump-polls-winning-clinton-democratic-convention-speech-column/87700524/) David Mastio
+- [Imagine polls don't exist.  Show me evidence Hillary is winning?](https://twitter.com/mitchellvii/status/762497721831874561) Bill Mitchell [Tweet]
 
 ## Multiple winner predictions in one article
 - [no articles]
