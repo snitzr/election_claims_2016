@@ -11,6 +11,7 @@
 - [Donald Trump will not be president: History, polling data and demographics all point to a single result](http://www.salon.com/2016/05/05/donald_trump_will_not_be_president_history_polling_data_and_demographics_all_point_to_a_single_result_partner/) Anthony J. Gaughan
 - [Op-Ed Don't panic, Democrats, Hillary Clinton will beat Donald Trump](http://www.latimes.com/opinion/op-ed/la-oe-green-hillary-clinton-will-win-20160606-snap-story.html) Mark Green
 - [Donald Trump needs a miracle to win](https://www.washingtonpost.com/news/powerpost/wp/2016/08/09/donald-trump-needs-a-miracle-to-win/) Stuart Rothenberg
+- [These three states are making a Trump win basically impossible](https://www.washingtonpost.com/news/the-fix/wp/2016/08/12/these-three-states-are-making-a-trump-win-basically-impossible/) Aaron Blake
 
 ## Trump
 - [After Brexit, a Trump Path to Victory](https://www.lewrockwell.com/2016/06/patrick-j-buchanan/trump-will-win/) Patrick J. Buchanan
