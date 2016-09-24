@@ -28,6 +28,7 @@
 - [Glenn Makes Wild Prediction About Trump](http://www.glennbeck.com/2016/05/11/glenn-makes-wild-prediction-about-trump/) Glenn Beck
 - [Election 2016 is over. Trump won](http://www.usatoday.com/story/opinion/2016/07/29/trump-polls-winning-clinton-democratic-convention-speech-column/87700524/) David Mastio
 - [Imagine polls don't exist.  Show me evidence Hillary is winning?](https://twitter.com/mitchellvii/status/762497721831874561) Bill Mitchell [Tweet]
+- [Trump is headed for a win, says professor who has predicted 30 years of presidential outcomes correctly](https://www.washingtonpost.com/news/the-fix/wp/2016/09/23/trump-is-headed-for-a-win-says-professor-whos-predicted-30-years-of-presidential-outcomes-correctly/?tid=pm_pop_b) Professor Allan Lichtman
 
 ## Multiple winner predictions in one article
 - [no articles]
