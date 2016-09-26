@@ -13,6 +13,7 @@
 - [Donald Trump needs a miracle to win](https://www.washingtonpost.com/news/powerpost/wp/2016/08/09/donald-trump-needs-a-miracle-to-win/) Stuart Rothenberg
 - [These three states are making a Trump win basically impossible](https://www.washingtonpost.com/news/the-fix/wp/2016/08/12/these-three-states-are-making-a-trump-win-basically-impossible/) Aaron Blake
 - [Nate Silver says I should be nervous about the election. Here’s why I’m not too nervous.](https://www.washingtonpost.com/posteverything/wp/2016/09/22/nate-silver-says-i-should-be-nervous-about-the-election-heres-why-im-not-too-nervous/?utm_term=.5c5bfb8df341) Daniel W. Drezner
+- [Obama’s campaign guru: Don’t fret about polls. Clinton is winning, and she can finish the job tonight.](https://www.washingtonpost.com/blogs/plum-line/wp/2016/09/26/obamas-campaign-guru-dont-fret-about-polls-clinton-is-winning-and-she-can-finish-the-job-tonight/?tid=pm_pop_b&utm_term=.53dc30cc3af7) Greg Sargent
 
 ## Trump
 - [After Brexit, a Trump Path to Victory](https://www.lewrockwell.com/2016/06/patrick-j-buchanan/trump-will-win/) Patrick J. Buchanan
