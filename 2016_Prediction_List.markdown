@@ -16,6 +16,7 @@
 - [Obama’s campaign guru: Don’t fret about polls. Clinton is winning, and she can finish the job tonight.](https://www.washingtonpost.com/blogs/plum-line/wp/2016/09/26/obamas-campaign-guru-dont-fret-about-polls-clinton-is-winning-and-she-can-finish-the-job-tonight/?tid=pm_pop_b&utm_term=.53dc30cc3af7) Greg Sargent
 - [A dirty trick that won’t change the outcome](https://www.washingtonpost.com/opinions/a-dirty-trick-that-wont-change-the-outcome/2016/11/01/0b94b1de-9fc0-11e6-8832-23a007c77bb4_story.html?utm_term=.be320ad5bd7c) Katrina vanden Heuvel
 - [Hillary Clinton has enough electoral votes to win the White House in final Fix map](https://www.washingtonpost.com/news/the-fix/wp/2016/11/07/the-final-fix-map-shows-hillary-clinton-with-enough-electoral-votes-to-win-the-white-house/) Chris Cillizza and Aaron Blake
+- [This “Psychic” Scottish Goat Has Predicted Hillary Clinton Will Win The Election](https://www.buzzfeed.com/franciswhittaker/make-america-goat-again) Francis Whittaker
 
 ## Trump
 - [After Brexit, a Trump Path to Victory](https://www.lewrockwell.com/2016/06/patrick-j-buchanan/trump-will-win/) Patrick J. Buchanan
@@ -33,6 +34,7 @@
 - [Imagine polls don't exist.  Show me evidence Hillary is winning?](https://twitter.com/mitchellvii/status/762497721831874561) Bill Mitchell [Tweet]
 - [Trump is headed for a win, says professor who has predicted 30 years of presidential outcomes correctly](https://www.washingtonpost.com/news/the-fix/wp/2016/09/23/trump-is-headed-for-a-win-says-professor-whos-predicted-30-years-of-presidential-outcomes-correctly/?tid=pm_pop_b), [
 Professor who’s predicted 30 years of presidential elections correctly is doubling down on a Trump win](https://www.washingtonpost.com/news/the-fix/wp/2016/10/28/professor-whos-predicted-30-years-of-presidential-elections-correctly-is-doubling-down-on-a-trump-win/) Professor Allan Lichtman
+- [Geda the Monkey has seen the future and it is Trump](https://www.buzzfeed.com/beimengfu/according-to-a-chinese-monkey-donald-trump-will-be-the-next) Beimeng Fu
 
 ## Multiple winner predictions in one article
 - [no articles]
